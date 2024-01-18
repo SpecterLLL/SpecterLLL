@@ -1,5 +1,3 @@
-### Hi there 👋
-
 Hi,this is @SpecterLLL.
 
 👻 "specter" is the name of an album released by BLU-SWING,more precisely,"spectre".
