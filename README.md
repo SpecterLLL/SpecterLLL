@@ -1,7 +1,7 @@
 ## Hi,this is @SpecterLLL.
 
 👻 "specter" is the name of an album released by BLU-SWING,more precisely,"spectre".      
-🎨 I prefer summmoning up images of something unsettled,chilling and creative when it comes to "specter",because the album does convey feelings likewise.     
+🎨 I prefer summoning up images of something unsettled,chilling and creative when it comes to "specter",because the album does convey feelings likewise.     
 🤸 As for "lll",it is probably the abbreviation of "lalala".You could consider it as a casual,but not random,improvisation.      
 
 🎸 A senior student aged 22.
