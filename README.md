@@ -9,7 +9,7 @@
 ⏲️ It has been       
 🌭 3 months since I started using vim to edit files,       
 🍓 2 months since I started learning C++,      
-🔪 1 mouth since I decided to pick "software developer" as my career.      
+🔪 1 month since I decided to pick "software developer" as my career.      
 👻 Now my plan is to finish my basic learning on C++ and start my learning on Data Structure and Algorithm.      
 
 Everything will be more clear before 2025.
