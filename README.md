@@ -15,7 +15,8 @@
 Everything will be more clear before 2025.
 
 
-This account has been "transferred" to [Spectrumzero](https://github.com/spectrumzero)...
+This account has been "transferred" to [Spectrumzero](https://github.com/spectrumzero) ...
+See you later.
 
 <!--
 **SpecterLLL/SpecterLLL** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
