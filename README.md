@@ -13,6 +13,10 @@
 👻 Now my plan is to finish my basic learning on C++ and start my learning on Data Structure and Algorithm.      
 
 Everything will be more clear before 2025.
+
+
+This account has been "transferred" to [Spectrumzero](https://github.com/spectrumzero)...
+
 <!--
 **SpecterLLL/SpecterLLL** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
